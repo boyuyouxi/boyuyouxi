@@ -1,4 +1,6 @@
-## Hi there 👋
+## 博鱼游戏|登录代理注册|平台官方认证 - 博鱼唯一注册官网
+
+<https://boyuyouxi.github.io>
 
 <!--
 **boyuyouxi/boyuyouxi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
